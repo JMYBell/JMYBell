@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a few small project to gain experience for future employment.
 - 📫 It is best to email me at jonettayeager@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: IF you roll and slide a lot during paintball...you be a lughing stock with sore dyed knees.
+- ⚡ Fun fact: IF you roll and slide a lot during paintball...you'll be a lughing stock with sore red knees.
 
 <!---
 JMYBell/JMYBell is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
