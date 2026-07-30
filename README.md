@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JMYBell
+- 👋 Hi, I’m Jonetta Bell
 - 💞️ I’m looking to collaborate on a few small projects to gain experience for future employment.
 - 📫 It is best to email me at belljonetta@gmail.com
 - 😄 Pronouns: She/Her
